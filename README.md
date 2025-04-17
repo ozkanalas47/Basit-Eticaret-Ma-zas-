@@ -1,1 +1,1 @@
-# Basit-Eticaret-Ma-zas-
+# Basit-Eticaret-Magzasi
